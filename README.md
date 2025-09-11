@@ -2,4 +2,4 @@ Just a guy who likes to code in C++(/Python? <sub>don't really code in it anymor
 
 And I love Oneshot and Niko OneShot. Yeah, just wanted to include that in here.
 
-You can find me on [Twitter<sub>/X</sub>](https://x.com/TheFakeJeremy_), [Bsky](https://bsky.app/profile/thefakejeremy.bsky.social), [Reddit](https://www.reddit.com/user/Historical-Study-223/), [Tumblr](https://www.tumblr.com/abdulaziz1243), or contact me via Discord on @thefakejeremy. 
+You can find me on [Twitter<sub>/X</sub>](https://x.com/TheFakeJeremy_), [Bsky](https://bsky.app/profile/thefakejeremy.bsky.social), [Reddit](https://www.reddit.com/user/Historical-Study-223/), [Tumblr](https://www.tumblr.com/thefakejeremy), or contact me via Discord on @thefakejeremy. 
